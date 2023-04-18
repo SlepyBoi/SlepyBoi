@@ -5,4 +5,6 @@ My Stuff: [slepyish.com](https://www.slepyish.com/)
 
   Contact Me:
 
-   Guilded: [https://www.guilded.gg/u/cuck](https://www.guilded.gg/u/cuck)
+   Discord: Slepy#1337
+   Twitter: [Twitter](https://twitter.com/slepyish)
+   Guilded: [Guilded](https://www.guilded.gg/u/cuck)
